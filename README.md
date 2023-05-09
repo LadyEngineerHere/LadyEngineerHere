@@ -1,5 +1,5 @@
 ## About Me :woman_with_headscarf:
-![Profile Banner](https://github.com/LadyEngineerHere/ladyengineerhere-image-resources/blob/main/Profile%20Banner1.png?raw=true)
+![Profile Banner](https://github.com/LadyEngineerHere/ladyengineerhere-image-resources/blob/main/purple%20banner.jpeg?raw=true)
 
 
 
